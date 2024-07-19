@@ -10,3 +10,4 @@ We're looking for talented developers to help us reach our goals and contribute 
 Interested in joining us?
 
 😎 Explore our career opportunities now.
+@sesocell
